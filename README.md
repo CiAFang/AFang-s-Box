@@ -1,1 +1,1 @@
-It's MyGO!!!!!
+For XCPC and WIN!!!
